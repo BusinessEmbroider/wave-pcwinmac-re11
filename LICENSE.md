@@ -1,4 +1,4 @@
-# 
+# Exclusivo Wave predefinições para Mac OS | Seguro Wave predefinições para PC Windows. Com planejamento tributário e suporte para autônomos — otimizado para máximo desempenho em cada plataforma.
 
 
 
